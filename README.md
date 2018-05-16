@@ -1,1 +1,21 @@
 # s8
+http://www.123161.net
+http://www.123117.net
+http://www.123126.net
+http://www.123127.net
+http://www.123129.net
+http://www.123132.net
+http://www.123135.net
+http://www.123136.net
+http://www.123137.net
+http://www.123153.net
+http://www.123157.net
+http://www.123159.net
+http://www.123162.net
+http://www.123165.net
+http://www.123167.net
+http://www.123169.net
+http://www.123171.net
+http://www.123172.net
+http://www.123173.net
+http://www.123175.net
